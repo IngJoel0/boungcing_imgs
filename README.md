@@ -1,4 +1,4 @@
-# 🎬 boungcing_imgs
+# 🎬 Boungcing_imgs
 
 Welcome to a creative and playful version of the classic DVD bouncing logo screensaver! ✅
 
